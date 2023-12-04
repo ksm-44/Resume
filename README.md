@@ -3,7 +3,7 @@
 
 Good Morning,
 
-I am excited to have the opportunity to interview for the Quantitative Analyst position at Dolat Capital, and I appreciate the chance to discuss my qualifications further.
+I am excited to have the opportunity to interview for the Trainee Analyst position at Tiger Analytics, and I appreciate the chance to discuss my qualifications further.
 
 My name is Krishna Mundra, and I am currently a fifth-year student pursuing a B.Tech in Civil Engineering and an M.Tech in Structural Engineering at IIT Bhubaneswar. Beyond my academic pursuits, I have developed a keen interest in the financial markets and trading, a passion that I am eager to bring to the company.
 
