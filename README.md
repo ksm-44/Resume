@@ -3,11 +3,11 @@
 
 Good Morning,
 
-I am excited to have the opportunity to interview for the Trainee Analyst position at Tiger Analytics, and I appreciate the chance to discuss my qualifications further.
+I am excited to have the opportunity to interview for the Consutant position at Exl service, and I appreciate the chance to discuss my qualifications further.
 
 My name is Krishna Mundra, and I am currently a fifth-year student pursuing a B.Tech in Civil Engineering and an M.Tech in Structural Engineering at IIT Bhubaneswar. Beyond my academic pursuits, I have developed a keen interest in the financial markets and trading, a passion that I am eager to bring to the company.
 
-I am excited about the chance of applying my diverse skill set and experiences to contribute to the dynamic field of quantitative analysis at Dolat Capital.
+
 
 Coming on to my internship experiences
 
@@ -21,7 +21,7 @@ Moreover, I possess skill set in Python, and SQL. These technical skills, couple
 
 In addition to my academic and professional experiences, I have demonstrated leadership and organizational skills in various Positions of Responsibility. Notably, as the General Secretary of the Socio-Cultural Council at IIT Bhubaneswar in 2021, I successfully led and managed 10 societies and clubs, overseeing a collective membership of 1000 individuals. I have also held the Positions of music secretary of my College, core head of events team, Alma fiesta the sociocult fest of my college and Student guide at Counselling services team for Two batches. These experiences have equipped me with valuable insights into effective team management and coordination. 
 
-What excites me most about the opportunity at Dolat Capital is the chance to work in a fast-paced, multi-tasking environment that aligns with my experience and strengths. 
+What excites me most about the opportunity at EXL is the chance to work in a fast-paced, multi-tasking environment that aligns with my experience and strengths. 
 
 Don't
 
